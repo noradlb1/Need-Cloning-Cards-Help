@@ -41,7 +41,7 @@ My Telegram: @MONSTERMC
 <a href="https://imgbb.com/"><img src="https://i.ibb.co/QdXNh4y/CONTACTLESS-The-machine-is-sold-by-CC-buddies.png" alt="CONTACTLESS-The-machine-is-sold-by-CC-buddies" border="0"></a>
 
 
-
+<a href="https://ibb.co/18pLkNT"><img src="https://i.ibb.co/D56tZFQ/28911775001-5967068321001-5967061864001-vs.jpg" alt="28911775001-5967068321001-5967061864001-vs" border="0"></a>
 
 
 
