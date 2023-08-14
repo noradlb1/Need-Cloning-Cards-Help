@@ -35,10 +35,10 @@ I have very many acquaintances around the country, including government acquaint
 Even arms and drug dealers
 
 Contact me on Telegram
-My Telegram
+My Telegram: @MONSTERMC
 
 
-
+<a href="https://imgbb.com/"><img src="https://i.ibb.co/QdXNh4y/CONTACTLESS-The-machine-is-sold-by-CC-buddies.png" alt="CONTACTLESS-The-machine-is-sold-by-CC-buddies" border="0"></a>
 
 
 
